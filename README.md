@@ -51,4 +51,4 @@
 
 
 ## Контактная информация
-- Email: natasha.osintseva@gmail.com
+- Email: natafanaseva1@mail.ru
